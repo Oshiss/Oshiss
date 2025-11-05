@@ -1,6 +1,6 @@
 ##  ❞𝒶𝓌𝒶𝓌𝒶 
 ## 𝄒 ⸰ ✴︎———⸰————✦————⸰————✦————⸰————✴︎ ⸰
-![Image alt](https://github.com/Oshiss/Oshiss/blob/main/kit.jpg)
+![Image alt](https://github.com/Oshiss/Oshiss/blob/main/cho.jpg)
 
 ![](https://komarev.com/ghpvc/?username=your-github-Oshiss&color=lightgrey&style=flat-square&label=★)
 ## 𝄒 ⸰ ✴︎———⸰————✦————⸰————✦————⸰————✴︎ ⸰
